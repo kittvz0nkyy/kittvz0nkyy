@@ -1,16 +1,19 @@
-## Hi there 👋
+![Image](https://github.com/user-attachments/assets/6a425fc3-3e35-4409-bc84-96c0095920ef)
 
-<!--
-**kittvz0nkyy/kittvz0nkyy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+◟✦. Hii!! You can call me Veronia or Vero, nice to meet you!! you can find me sitting with my waifu, mooties or friends ❤️
 
-Here are some ideas to get you started:
+☬. (my languages) I'm german, turkish and english!!💫
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+❀ - I have social anxiety, I would be glad if you interract me first (I rarely speak on local chat, but always free for whispers!!❤️)
+
+｡⚘ I have ADHD, so I might forget stuff easily.. SORRYY GUYSS
+
+𓂃★ ˊ˗ My favorite fandoms are Sonic (obvv duhhh), Fnaf, fnf, Kimetsu no yaiba, Hazbin hotel, Mha, mlp, genshin impact, roblox, doki doki literature club, colorful stage, yandere simulator and minecraft❤️
+
+♔ ⊱ characters I love: Tanjiro kamado, Hatsune Miku, Yuri, Elizabeth afton, Alastor, Deku, Twillight sparkle ❤️
+
+DNI: Sark supporters, Trump supporters, racist, trans people, etc. dni.
+
+Thanks for reading this!!❤️
+
+
