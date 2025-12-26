@@ -12,7 +12,7 @@
 
 ♔ ⊱ characters I love: Tanjiro kamado, Hatsune Miku, Yuri, Elizabeth afton, Alastor, Deku, Twillight sparkle ❤️
 
-DNI: Sark supporters, Trump supporters, racist, mean trans people, etc. dni.
+DNI: Sark supporters, Trump supporters, racist, mean/toxic ppl, etc. dni.
 
 Thanks for reading this!!❤️
 
