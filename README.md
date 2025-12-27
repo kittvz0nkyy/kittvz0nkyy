@@ -6,11 +6,11 @@
 
 ❀ - I have social anxiety, I would be glad if you interract me first (I rarely speak on local chat, but always free for whispers!!❤️)
 
-｡⚘ I have ADHD, so I might forget stuff easily.. SORRYY GUYSS
+｡⚘ And I also have ADHD, so I might forget stuff easily.. SORRYY GUYSSYSYSYS
 
-𓂃★ ˊ˗ My favorite fandoms are Sonic (obvv duhhh), Fnaf, fnf, Kimetsu no yaiba, Hazbin hotel, Mha, mlp, genshin impact, roblox, doki doki literature club, colorful stage, yandere simulator and minecraft❤️
+𓂃★ ˊ˗ My favorite fandoms are Sonic (obvv duhhh), Fnaf, fnf, Kimetsu no yaiba, Hazbin hotel, Tadc, Mha, mlp, genshin impact, roblox, doki doki literature club, colorful stage, yandere simulator and minecraft❤️
 
-♔ ⊱ characters I love: Tanjiro kamado, Hatsune Miku, Yuri, Elizabeth afton, Alastor, Deku, Twillight sparkle ❤️
+♔ ⊱ characters I love: Tanjiro kamado, Hatsune Miku, Yuri, Elizabeth afton, Alastor, Deku, Pomni , Jax, Ribbit and Twillight sparkle ❤️
 
 DNI: Sark supporters, Trump supporters, racist, mean/toxic ppl, etc. dni.
 
